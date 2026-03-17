@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DECJ911107MJCLMC06
+DECJ911107MJCLMC06
